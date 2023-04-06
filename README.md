@@ -31,4 +31,4 @@
                                                                                                                                            
  </br>
   
-  Procuro novas experiências e oportunidades para masterizar as linguagens e aprender sobre novas tecnologias 💻💡🔥
+  Procuro novas experiências e oportunidades para adiquirir conhecimento e aperfeiçoar as minhas habilidades 💻💡🔥
